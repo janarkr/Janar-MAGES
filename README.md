@@ -1,3 +1,0 @@
-# Janar-MAGES
-
-Janar Suryakulam
